@@ -17,7 +17,7 @@
  <sub><a href="https://guns.lol/haliosis" target="_blank">guns</a>　　　　<a href="https://halmarched.atabook.org/" target="_blank">ata</a>　　　　<a href="https://rentry.co/only-god-forgives" target="_blank">rentry</a>　　　　</sub>
 <br> <br>
 
-$${\color{#AB8C9D}mostly}$$
+$${\color{#d4c0b4}he　any}$$ 　$${\color{#d4c0b4}aroace　androgyne}$$　
 
 </div>
 
