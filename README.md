@@ -27,4 +27,5 @@ $${\color{#d4c0b4}he　any}$$　 $${\color{#7d6e64}aroace　bi}$$
 </td>
 </tr>
 </table>
-<img width="99" height="56" alt="tumblr_749a98a58cbb4ee7391649029779b9d6_274ffec4_100" src="https://github.com/user-attachments/assets/e6fe4864-f05a-497a-afc4-cc5cc685d5a0" />
+
+<img width="230" height="114" alt="1908cd277cf909e44350c3542bd9bda2" src="https://github.com/user-attachments/assets/689362fa-68e6-4274-a3a8-96313508c051" />
