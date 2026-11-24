@@ -17,10 +17,10 @@
  <sub><a href="https://guns.lol/haliosis" target="_blank">guns</a>　　　　<a href="https://halmarched.atabook.org/" target="_blank">ata</a>　　　　<a href="https://rentry.co/only-god-forgives" target="_blank">rentry</a>　　　　</sub>
 <br> <br>
 
+$${\color{#AB8C9D}mostly}$$
+
 </div>
 
 </td>
 </tr>
 </table>
-
-$${\color{#AB8C9D}mostly}$$ $${\color{#868189}not int}$$ $${\color{#D4939B}that}$$ ㅤ $${\color{#D8C3B7}much at}$$ $${\color{#AB8C9D}all}$$ </br>
