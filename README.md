@@ -20,8 +20,7 @@
 <br> <br>
 <img width="60" height="60" alt="tumblr_c0fd55736c2a741effb3fb24f1a4274b_175788ac_75" src="https://github.com/user-attachments/assets/19d450a0-b59a-4e20-80b5-6277788ffe44" />
 
-$${\color{#876931}he　any}$$　 $${\color{#703416}aroace　bi}$$
-$${\color{#876931}17}$$
+$${\color{#876931}he　any}$$　 $${\color{#703416}aroace　bi}$$　 $${\color{#876931}17}$$
 
 </div>
 
